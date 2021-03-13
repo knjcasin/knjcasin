@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @knjcasin
+- 👀 I’m interested in App and Web Development!
+- 🌱 I’m currently learning Java, HTML, CSS and JS!
+- 💞️ I’m looking to collaborate on small projects and static websites to play around and learn new skills.
+- 📫 How to reach me via email @ knjcasin@gmail.com and in almost all socials using @knjcasin
